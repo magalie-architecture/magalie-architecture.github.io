@@ -1,1 +1,0 @@
-# magalie-architecture.github.io
